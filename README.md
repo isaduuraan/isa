@@ -1,0 +1,2 @@
+# isa
+Mavi tik istiyorum
